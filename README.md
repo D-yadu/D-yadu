@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **yadukrishnan8001@gmail.com**
 
-- ⚡ Fun fact **Here's a fun fact about"I'm a triple threat: a tech enthusiast with a knack for design and a great sense of humor, making every project I work on both innovative and entertaining!"**
+- ⚡ Fun fact **"I'm a triple threat: a tech enthusiast with a knack for design and a great sense of humor, making every project I work on both innovative and entertaining!"**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
